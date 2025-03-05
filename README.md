@@ -38,5 +38,5 @@ andre(ij)﹐natsuki(ddlc)﹐piers(pkmn)﹐snufkin﹐joxter(moomins)﹐wheatley(p
 
 most of my comfort characters are characters that my kins like. be it their                                                             
 friends or family or characters they're shipped with. my kins themselves are                                                             
-also comfort characters ! but my biggest comforts at the moment are shadow﹐                                                          
+also comfort characters ! but my biggest comforts at the moment are shadow                                                          
 tails and nine !
