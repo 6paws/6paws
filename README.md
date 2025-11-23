@@ -30,3 +30,5 @@ n ₍murder drones₎
 reth, jel ₍palia₎                                                                         
 tartaglia, albedo, tighnari ₍genshin impact₎                                                                         
 lampert ₍regretevator₎                                                                         
+
+i don't care about your opinions on fictional characters
