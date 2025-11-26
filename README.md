@@ -37,7 +37,7 @@ disneyland
 
 f/os﹕                                                                         
 ‿‿⠀⠀milo mireles, arlo vogel, ezra, ash ₍oc₎                                                                         
-vox, valentino ₍hellaverse₎                                                                         
+vox ₍hellaverse₎                                                                         
 n ₍murder drones₎                                                                         
 reth, jel ₍palia₎                                                                         
 tartaglia, albedo, tighnari ₍genshin impact₎                                                                         
