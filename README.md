@@ -1,5 +1,5 @@
 ![http://url/to/img.png](https://i.imgur.com/fEcNexQ.gif)
-}
+
 main﹕
 ‿‿   he + it/they + purr/paw/kneadㅤ   ★   22y/o               
 ㅤㅤ𓂃ㅤㅤㅤㅤㅤㅤㅤ  trans gayㅤ   ☆   nonbinary genderfluid xenogender
