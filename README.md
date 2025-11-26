@@ -44,3 +44,5 @@ tartaglia, albedo, tighnari ₍genshin impact₎
 lampert ₍regretevator₎                                                                         
 
 i don't care about your opinions on fictional characters. i cope however i want                                                             
+
+![http://url/to/img.png](https://i.imgur.com/fEcNexQ.gif)
