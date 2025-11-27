@@ -8,7 +8,8 @@ about﹕
 
 pt﹕                                                             
 ‿‿⠀⠀always c+h unless i have dni in my name                                                             
-ㅤㅤ𓂃ㅤㅤㅤㅤㅤㅤㅤ⠀i don't have a dni (except mdni, obviously,) and anyone can int, but sometimes i'm just not in the mood 💔                                                          
+ㅤㅤ𓂃ㅤㅤㅤㅤㅤㅤㅤ⠀i don't have a dni (except mdni, obviously,) and anyone can int, but sometimes                                                           
+i'm just not in the mood 💔                                                          
 ‿‿⠀⠀please don't copy my ponies pixel for pixel. but inspiration makes me happy !                                                              
 feel free to colorpick and etc. !                                                                                                      
 ‿‿⠀⠀i am very often afk or will pretend to be if i don't feel like talking. but feel                                                              
