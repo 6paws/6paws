@@ -44,6 +44,7 @@ reth, jel ₍palia₎
 tartaglia, albedo, tighnari ₍genshin impact₎                                                                         
 lampert ₍regretevator₎                                                                         
 
-i don't care about your opinions on fictional characters. i cope however i want                                                             
+main ships﹕                                                       
+‿‿⠀⠀radiostatic, staticmoth, polyvees, voxvel, velissa, huskerdust
 
 ![http://url/to/img.png](https://i.imgur.com/fEcNexQ.gif)
