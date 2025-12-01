@@ -45,6 +45,6 @@ tartaglia, albedo, tighnari ₍genshin impact₎
 lampert ₍regretevator₎                                                                         
 
 main ships﹕                                                       
-‿‿⠀⠀radiostatic, staticmoth, polyvees, voxvel, velissa, huskerdust
+‿‿⠀⠀radiostatic, staticmoth, polyvees, voxvel, velissa, huskerdust, stolitz
 
 ![http://url/to/img.png](https://i.imgur.com/fEcNexQ.gif)
